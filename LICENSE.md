@@ -1,4 +1,4 @@
-# 
+# Profesional 1inch trading bot flujo de trabajo para Mac OS | Nuevo 1inch trading bot flujo de trabajo para PC Windows. Con análisis de libro de órdenes y análisis de datos históricos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
